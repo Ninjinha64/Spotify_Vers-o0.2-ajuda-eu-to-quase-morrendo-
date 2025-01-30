@@ -1,0 +1,1 @@
+# Spotify_Vers-o0.2-ajuda-eu-to-quase-morrendo-
